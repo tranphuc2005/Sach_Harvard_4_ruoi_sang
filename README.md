@@ -62,11 +62,4 @@ Mọi nội dung trong cuốn sách được bảo vệ bởi luật bản quy�
 
 ---
 
-## **8. Liên hệ**
-Nếu bạn muốn chia sẻ trải nghiệm hoặc thắc mắc về cuốn sách, vui lòng liên hệ:  
-- **Email**: contact@4h30amharvard.com  
-- **Website**: [www.4h30amharvard.com](http://www.4h30amharvard.com)
-
----
-
 **"Hãy bắt đầu một ngày mới từ 4 rưỡi sáng và bạn sẽ thấy cuộc đời thay đổi."**
